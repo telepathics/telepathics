@@ -3,26 +3,26 @@
 
   <a href="https://path.party">website</a> ⋆ <a href="https://instagram.com/telepxthics">instagram</a> ⋆ <a href="https://discord.gg/telepathics">discord</a>
 
-### May 2026
+### June 2026
 
 | mon | tue | wed | thu | fri | sat | sun |
 | --- | --- | --- | --- | --- | --- | --- |
-|     |     |     |     | 1   | 2   | 3   |
-| 4   | 5   | 6   | 7   | 8   | 9   | 10  |
-| 11  | 12  | 13  | 14  | 15  | 16  | 17  |
-| 18  | 19  | 20  | 21  | 22  | 23  | 24  |
-| 25  | 26  | 27  | 28  | 29  | 30  | 31  |
+| 1   | 2   | 3   | 4   | 5   | 6   | 7   |
+| 8   | 9   | 10  | 11  | 12  | 13  | 14  |
+| 15  | 16  | 17  | 18  | 19  | 20  | 21  |
+| 22  | 23  | 24  | 25  | 26  | 27  | 28  |
+| 29  | 30  |     |     |     |     |     |
 
 </div>
 
 <div align="center">
-<sup>𐙚˙✧˖°🌸 ༘ ⋆｡ ˚</sup>
+<sup>𐙚˙✧˖°🌼 ༘ ⋆｡ ˚</sup>
 </div>
 
-💭 **DBT skill focus:** [Distract your thoughts](https://gretchenrubin.com/articles/tips-for-how-to-get-out-of-your-head/). Use creative thinking to distract yourself from current problems or painful memories. For example: observe the beauty in the world around you; count the colours you see or the sounds you hear; pay attention to someone else; or imagine your wildest fantasy coming true.
+💭 **DBT skill focus:** [Relax and soothe using scents](/internal/scents.md). Make a list of scents that smell good and help you relax. Then gather some of them to use. Try candles, herbs, flowers, scented oils, perfumes, colognes, food, or whatever else helps. Keep some with you when you're not home to help soothe yourself whenever needed.
 
-🌙 **Tarot journaling:** [The Magician](https://www.youtube.com/watch?v=yKmvfbAoK4Q). Manifesting, making it happen on the physical level, director of ideas & energy, conduit between physical and energetic worlds, illusion and trickery.
+🌙 **Tarot journaling:** [Knight of Wands](https://www.youtube.com/watch?v=Guyu3WRDjVQ). Adventurous, inspired, energetic, creative, competitive, dynamic, loves a challenge or quest, goal oriented, world traveller, passionate, craves change and movement.
 
-🗓️ **This month's challenge:** [Back to routine](https://gretchenrubin.com/wp-content/uploads/2025/08/GR_Back_to_Routine_worksheet_08.2025.pdf). What we do every day matters more than what we do once in a while. If you miss a day or two, don't worry—what matters is getting back on track. Progress, not perfection, is the goal.
+🗓️ **This month's challenge:** [Rest](https://gretchenrubin.com/wp-content/uploads/2024/02/GR_Jump-start_Worksheet_Rest.pdf). Before I left for my Spring work retreat, my Fitbit usually classified my energy/resilience as "balanced" with some "optimal" sprinkled in. Since returning, however, I've been non-stop "low". Taking that as a sign to rest and recover.
 
 <img align="right" src="./rollingCat.gif" alt="rollingCat" width="50" />
