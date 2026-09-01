@@ -23,6 +23,6 @@
 
 🌙 **Tarot journaling:** Seven of Cups (reversed). You are trying to juggle too much or engaging in wishful thinking; a desired goal will disappoint.
 
-🗓️ **This month's challenge:** September Sidequests bingo card :3 - doesn't need to be a full blackout but as many as i can would be nice.
+🗓️ **This month's challenge:** [September Sidequests bingo card](https://bingobaker.com/#6a972f8022553ec4) :3 - doesn't need to be a full blackout but as many as i can would be nice.
 
 <img align="right" src="./rollingCat.gif" alt="rollingCat" width="50" />
