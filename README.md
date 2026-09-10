@@ -26,3 +26,4 @@
 🗓️ **This month's challenge:** [September Sidequests bingo card](https://bingobaker.com/#6a972f8022553ec4) :3 - doesn't need to be a full blackout but as many as i can would be nice.
 
 <img align="right" src="./rollingCat.gif" alt="rollingCat" width="50" />
+<img align="right" src="https://github.githubassets.com/assets/mona-loading-dark-7701a7b97370.gif" alt="test" width="50" />
